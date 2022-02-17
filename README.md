@@ -8,6 +8,6 @@ Using this model, BigMart will try to understand the properties of products and 
 
 
 
-Practice Project. Barely understand how everything works. But i will get there. ♥♥♥♥♥♥♥♥♥ 513♥♥♥
+Practice Project. 
 
 
